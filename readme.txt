@@ -1,0 +1,1 @@
+It doesnt work always like it works for me but doesnt for my friend so yea try it and if it doesnt work there is always a st link to downgrade
